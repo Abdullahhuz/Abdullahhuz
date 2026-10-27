@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning how to read
 - 💞️ I’m looking to collaborate on buying a book on how to read
 - 📫 How to reach me: send me a maill to my address 126.12.125.36 (jk)
-- 😄 Pronouns: flip you mean??
 - ⚡ Fun fact: i'm in your walls
 
 <!---
